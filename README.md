@@ -1,0 +1,1 @@
+# ajuda-para-theey
